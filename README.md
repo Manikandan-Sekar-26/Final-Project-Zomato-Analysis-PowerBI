@@ -1,2 +1,13 @@
 # Final-Project-Zomato-Analysis-PowerBI
 ![image](https://github.com/user-attachments/assets/dcf256b5-598e-4293-9a4e-083570d12032)
+![image](https://github.com/user-attachments/assets/4ecdd4b6-77d5-417f-8530-64667b53b267)
+![image](https://github.com/user-attachments/assets/5f883cc5-c107-47ea-a4d2-79fe90353bc9)
+![image](https://github.com/user-attachments/assets/131c77a1-cf7f-444f-9502-773ac1b4d14e)
+![image](https://github.com/user-attachments/assets/672f2046-2e83-4334-b3c9-5bc64e4176b7)
+![image](https://github.com/user-attachments/assets/9cda22ee-adf2-48cd-bdaf-f72cab515575)
+![image](https://github.com/user-attachments/assets/99ee64f8-8662-4729-8bdd-767749b87b47)
+![image](https://github.com/user-attachments/assets/d3db08c8-c04c-4e17-af04-6dc0051aef02)
+![image](https://github.com/user-attachments/assets/e97d4f6e-1814-4f9c-9b0b-be95e15d8938)
+![image](https://github.com/user-attachments/assets/366801ee-d52c-4663-be25-31dd9b37872f)
+![image](https://github.com/user-attachments/assets/b70d26b0-c1f7-434e-bdd2-513112446a19)
+![image](https://github.com/user-attachments/assets/a1dcb0ca-a4e8-4e0d-939a-ff5084c35699)
